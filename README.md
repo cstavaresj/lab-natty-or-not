@@ -19,6 +19,6 @@ Episódio fake do podcast Podpah com Ayrton Senna em 1993.
 - Legendas animadas com CapCut.
 
 ## 🚀 Resultados
-[FaceFusion](https://www.tiktok.com/@cortedehumor/video/7445755662929366277?lang=pt-BR)
+[TikTok](https://www.tiktok.com/@cortedehumor/video/7445755662929366277?lang=pt-BR)
 
 ```
