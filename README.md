@@ -20,5 +20,3 @@ Episódio fake do podcast Podpah com Ayrton Senna em 1993.
 
 ## 🚀 Resultados
 [TikTok](https://www.tiktok.com/@cortedehumor/video/7445755662929366277?lang=pt-BR)
-
-```
